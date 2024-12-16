@@ -1,1 +1,3 @@
-skibidi
+A moment of silence for the deceased...
+
+Albuquerque Vex Robotics team from The ASK Academy since 2021
